@@ -1,1 +1,6 @@
-# Crypto_Clustering
+# Crypto_Clustering 
+SPECIAL tUTORING PROVIDED BY CO-WORKER; 
+COURSE WORK PROVIDED WAS USED AS A SOURCE;
+COURSE MEMBERS;
+Reference Materials:
+
